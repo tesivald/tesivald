@@ -3,7 +3,7 @@ i am opening a startup based on ecology, finally i found a smart wat to make thi
 If you want to help me on realizing what is still a dream you can help me. We can make a better world.
 - 👀 I’m interested in ecology
 - 🌱 I’m currently learning the programming
-- 💞️ I’m looking to collaborate on resolve global problems
+- 💞️ I’m looking to collaborate on resolving global problems
 - 📫 How to reach me contactme on mr.tesivald@gmail.com
 
 <!---
