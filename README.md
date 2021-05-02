@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tesivald
-i have opening a startup based on ecology, finally i found a smart wat to make this world be beeter place.
+i am opening a startup based on ecology, finally i found a smart wat to make this world be beeter place.
 If you want to help me on realizing what is still a dream you can help me. We can make a better world.
 - 👀 I’m interested in ecology
 - 🌱 I’m currently learning the programming
